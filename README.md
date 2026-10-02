@@ -66,5 +66,4 @@ The following maps show spatial changes between the 2015 and 2025 summer composi
 ## Author
 
 Musa Animashaun
-
-© 2026 Musa Animashaun
+Email: musaanimashaun@gmail.com
